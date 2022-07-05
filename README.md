@@ -1,0 +1,4 @@
+- 👋 Hi, I'm Dima
+- 👀 I’m interested in hacking of websites, social networks
+- 🌱 I’m currently learning Everything you can
+- 📫 How to reach me https://vk.com/fen11xx
